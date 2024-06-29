@@ -27,6 +27,6 @@
 
 ### 想要找我聊天...？💬
 Telegram：[Irwin](https://t.me/Irwin_Hs)  
-Email: [Irwin](mailto:Azc0071@163.com) 
+Email: [Azc0071@163.com](mailto:Azc0071@163.com) 
 
 
