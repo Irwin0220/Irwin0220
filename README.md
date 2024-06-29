@@ -1,7 +1,6 @@
 ### Hi there 👋
 这里是Irwin
-是废物OAO 啥都不会
-是INFP猫猫 *（Furry好耶）* 
+不是废物OAO 啥都会
 20岁在读大学喵 
 ~~比较社恐QwQ~~  
 
@@ -19,7 +18,6 @@
 * Linux
 
 ### 想要找我聊天...？💬
-群组: [Android Community]（https://t.me/Android_Rom_Irwin）
 Telegram：[Irwin](https://t.me/Irwin_Hs)  
 
 
