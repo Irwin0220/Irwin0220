@@ -26,7 +26,7 @@
 * Linux
 
 ### 想要找我聊天...？💬
-Telegram：[Irwin](https://t.me/Irwin_Hs)  
-Email: [Azc0071@163.com](mailto:Azc0071@163.com) 
+Telegram：[Irwin](https://t.me/Irwin_Hs) 
+Telegram群组：点击这里加入我们的[Telegram群组][https://t.me/Android_Rom_Irwin]进行实时讨论和获取最新信息。
 
 
