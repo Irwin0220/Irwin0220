@@ -4,7 +4,7 @@
 20岁在读大学喵 
 ~~比较社恐QwQ~~  
 
-### 社会主义核心价值观
+### 社会主义核心价值观🌱
 富强
 民主
 文明
@@ -27,6 +27,6 @@
 
 ### 想要找我聊天...？💬
 Telegram：[Irwin](https://t.me/Irwin_Hs) 
-Telegram群组：点击这里加入我们的[Telegram群组][https://t.me/Android_Rom_Irwin]进行实时讨论和获取最新信息。
+
 
 
