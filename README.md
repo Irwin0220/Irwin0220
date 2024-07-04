@@ -27,6 +27,7 @@
 
 ### 想要找我聊天...？💬
 Telegram：[Irwin](https://t.me/Irwin_Hs) 
+TIM：[一招半式走江湖](tencent://message/?uin=2197342769&Site=&Menu=yes) 
 
 
 
